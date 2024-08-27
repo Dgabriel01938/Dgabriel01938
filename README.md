@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on socialize
 - 📫 How to reach me i'm house
 - 😄 Pronouns: he
-- ⚡ Fun fact: i'm play minecraft
+- ⚡ Fun fact: i'm play Roblox
